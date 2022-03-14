@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @RudiJOKER
+- 👋 Hi, I’m @Rudi AR
 - 👀 I’m interested in anyone who is interesting to me
 - 🌱 I’m currently learning .
 - 💞️ I’m looking to collaborate on @rudiarreal@gmail.com
